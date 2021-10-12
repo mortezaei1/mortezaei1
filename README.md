@@ -1,4 +1,4 @@
--  Hi, I'm mortezaei and i'm 18. 
+-  Hi, I'm Mohammad Mahdi Mortezaei and i'm 18. 
 -  I'm interested in android programming and business management
 -  I'm currently learning java and economy leassons
 -  my username in telegram is mortezaei3m, i'll be so happy to talk to you :)
